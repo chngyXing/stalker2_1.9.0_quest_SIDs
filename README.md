@@ -1,0 +1,1 @@
+# stalker2_1.9.0_quest_SIDs
